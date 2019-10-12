@@ -1,4 +1,4 @@
 # me
-Here's all about me
+Here's all about me.
 My name is Fazil MA, 
-Reach me on maf.fazil@gmail.com
+I can be reached on maf.fazil@gmail.com
